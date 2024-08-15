@@ -4,7 +4,7 @@
 
 - 🌱 TIKTOK成人 最新下载地址（免翻墙，激情约妹）： https://aa8eb.rmmwkyxip.com
 
-- 💞️ TIKTOK成人获取最新地址（备份）: https://github.com/tiktok001
+- 💞️ TIKTOK成人获取最新地址（备份）: https://github.com/tiktokt001
 
 - 📫 TIKTOK成人 回家邮箱，发送任意信息到邮箱 lixiaomei1708@gmail.com 即可收到最新下载地址
 
