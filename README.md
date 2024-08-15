@@ -10,7 +10,7 @@
 
 - 😄 TIKTOK成人 官方TG：https://t.me/tiktokguanfang01
 
-- ⚡ TIKTOK成人 官方土豆：https://pt9.app/TikTok001
+- ⚡ TIKTOK成人 官方土豆：https://pt9.app/TikTok111
 
 - ⚡ 免费VPN翻墙： https://fe081.d95eddefe.com/c-2663/a-bHFec
 
