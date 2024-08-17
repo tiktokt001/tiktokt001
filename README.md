@@ -2,7 +2,7 @@
 
 - 👀 TIKTOK成人 永久地址（永久有效，谨防迷路，需翻墙）：https://ttav.life
 
-- 🌱 TIKTOK成人 最新下载地址（免翻墙，激情约妹）： https://21d09.rmmwkyxip.com
+- 🌱 TIKTOK成人 最新下载地址（免翻墙，激情约妹）： https://c0aa.a05nn87i58cj.com
 
 - 💞️ TIKTOK成人获取最新地址（备份）: https://github.com/tiktokt001
 
